@@ -1,0 +1,5 @@
+Existe um ser que mora dentro de mim como se fosse a casa dele, e é. Trata-se de um cavalo preto e lustroso que apesar de inteiramente selvagem – pois nunca morou antes em ninguém nem jamais lhe puseram rédeas nem sela – apesar de inteiramente selvagem tem por isso mesmo uma doçura primeira de quem não tem medo: come às vezes na minha mão. Seu focinho é úmido e fresco. Eu beijo o seu focinho. Quando eu morrer, o cavalo preto ficará sem casa e vai sofrer muito. A menos que ele escolha outra casa e que esta outra casa não tenha medo daquilo que é ao mesmo tempo selvagem e suave. Aviso que ele não tem nome: basta chamá-lo e se acerta com seu nome. Ou não se acerta, mas, uma vez chamado com doçura e autoridade, ele vai. Se ele fareja e sente que um corpo-casa é livre, ele trota sem ruídos e vai. Aviso também que não se deve temer o seu relinchar: a gente se engana e pensa que é a gente mesma que está relinchando de prazer ou de cólera, a gente se assusta com o excesso de doçura do que é isto pela primeira vez.
+
+Clarice Lispector 
+
+Uma aprendizagem ou O livro dos prazeres. Rio de Janeiro: Rocco, 1998.
